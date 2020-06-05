@@ -1,0 +1,4 @@
+# The Future of Digital Asset
+
+##### CODEO TOKEN was built with a variety of unique and special unlike other Tokens, because CODEO TOKEN comes as a vehicle forms a safe and comfortable digital ecosystem by providing protection not only against security, but rather protection of business value and value of codeo assets owned by users. in business aspects Code is designed as a long-term and sustainable digital transaction instrument where CODEO TOKEN is in phase future planning will be used not only for crypto users and the blockchain industry but CODEO TOKEN continue to build a unique and integrated ecosystem in various industries. through FIVE ANGES INVESTMENT (FAI Limited) Legal companies registered on the British Virgin island (BVI) will encourage the CODEO TOKEN function to be used in various industries including Startup products included in the CODEO incubator program# codeo-sol
+# codeo
